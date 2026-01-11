@@ -1,6 +1,6 @@
 ## * CHECK
 
-howdy, names kris. im *21* years old n' my pronouns are *he/she/they*. my preferences change per day, feel free to ask which i prefer.
+howdy, names kris. im *21* years old n' my pronouns are *he/she* and sometimes *they/them*. my preferences change per day, feel free to ask which i prefer.
 
 ***i'm using this for ponytown, if you want to know more about me specifically, you can check out my rentry that i have linked.***
 
