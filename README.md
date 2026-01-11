@@ -2,7 +2,7 @@
 
 howdy, names kris. my pronouns are *he/she* and sometimes *they/them*. my preferences change per day, feel free to ask which i prefer at the moment.
 
-**((i'm using this for ponytown, if you want to know more about me specifically, you can check out my rentry that i have linked on my profile.))**
+**((i'm using this for ponytown, if you want to know more about me specifically, you can check out my rentry that i have linked.))**
 
 * i'm usually off-tab while playing ponytown, so unless you see me moving and/or talking, i'm probably not looking at the game. if you want my attention, or just want to say something to me, please *whisper me* and i'll get back to you asap!!
 
