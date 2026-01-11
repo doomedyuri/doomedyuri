@@ -8,4 +8,4 @@ howdy, names kris. my pronouns are *he/she* and sometimes *they/them*. my prefer
 
 ♡ *C + H friendly!! i love when people sit with my horse. don't be shy! just keep in mind i may forget to make sure i don't get afk kicked, or i might just close the game at any time. ^_^;*
 
-♡ *feel free to interact! i love talking to people, just keep in mind i'm pretty socially inept. if i seem dry, i promise it's not you!*
+♡ *feel free to interact! i love talking to people & making new friends, but i'm pretty socially inept. so if i seem dry, i promise it's not you!*
