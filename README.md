@@ -11,6 +11,6 @@
   * i'm usually off-tab while playing ponytown, so unless you see me moving and/or talking, i'm probably not looking at the game. if you want my attention, please whisper me and i'll get back to you asap!
 </h4>
 
-<h6 align="center">* feel free to interact!! i love talking to new people & making friends, but i can be pretty socially inept or shy at times. so if i seem dry, i promise it's not you!</h4>
+<h6 align="center">* interacting is very much encouraged!! i love talking to new people & making friends, but i can be pretty socially inept or shy at times. so if i seem dry, i promise it's not you!</h4>
 
 <h6 align="center">* C+H friendly! i love when people sit with my horse. don't be shy! just keep in mind i may forget to make sure i don't get kicked for being afk.. ^_^;</h4>
