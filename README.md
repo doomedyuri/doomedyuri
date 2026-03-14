@@ -1,6 +1,6 @@
 <div align="center">
 
-# * CHECK
+![](https://files.catbox.moe/dz1r77.png)
 
 </div>
 <h5 align="center">((i'm using github for ponytown, if you want to know more about me specifically, you can check out my rentry that i have linked.))</h5>
