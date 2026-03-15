@@ -3,7 +3,9 @@
 ![](https://files.catbox.moe/zc9eul.webp)
 
 </div>
-<h5 align="center">((i'm using github for ponytown, if you want to know more about me specifically, you can check out my rentry that i have linked.))</h5>
+<h5 align="center">i'm using github for ponytown, if you want to know more about me specifically, you can check out my rentry that i have linked.</h5>
+
+![](https://files.catbox.moe/fgag86.gif)
 
 <h3 align="center">howdy, the names kris. my pronouns are he/she and sometimes they/them. my preferences change per day, feel free to ask which i prefer at the moment!</h3>
 
