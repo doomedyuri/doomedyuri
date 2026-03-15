@@ -1,6 +1,6 @@
 <div align="center">
 
-![](https://files.catbox.moe/dz1r77.png)
+![]([https://files.catbox.moe/dz1r77.png](https://64.media.tumblr.com/978eba8a10e72e56d0e12c9f48c437b6/449bbef7e97e4cf1-72/s500x750/9d4eb07db48aba8866bdb8ffc5e698bdf7bbf8db.gifv))
 
 </div>
 <h5 align="center">((i'm using github for ponytown, if you want to know more about me specifically, you can check out my rentry that i have linked.))</h5>
